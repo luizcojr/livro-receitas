@@ -11,7 +11,8 @@
 - 2 colheres de sopa de ketchup
 - 2 colheres de sopa de mostarda
 - Champignon
-- Batata palha e arroz branco para acompanhar
+- Batata palha
+- Arroz branco para acompanhar
 
 **Modo de Preparo**
 
